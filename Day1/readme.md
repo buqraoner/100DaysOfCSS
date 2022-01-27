@@ -2,9 +2,8 @@
 
 ------
 
-![](https://resimyukle.io/uploadyeri/FC3yS0Nh_1Days-1.png)
+![](https://i.hizliresim.com/rg67b0h.png)
 
-​	
 
 
 
